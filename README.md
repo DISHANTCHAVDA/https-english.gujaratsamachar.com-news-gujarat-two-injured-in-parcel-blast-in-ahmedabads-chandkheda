@@ -1,0 +1,1 @@
+# https-english.gujaratsamachar.com-news-gujarat-two-injured-in-parcel-blast-in-ahmedabads-chandkheda
